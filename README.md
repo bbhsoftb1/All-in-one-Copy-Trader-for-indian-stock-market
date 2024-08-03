@@ -4,7 +4,8 @@ All in one Copy Trading Software For Indian Broker
 
 Check software on below link
 
-https://1.envato.market/0ZMD7Y
+https://bhansalisoft.com/Product/Copy-Trading-Software--India-Broker
+
 
 <h4>What is All in one Copy Trading Software For Indian Broker ?</h4>
 <p>
